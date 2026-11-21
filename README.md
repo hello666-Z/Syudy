@@ -1,1 +1,1 @@
-# Syudy
+# Study
